@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🎓 I'm a computer science student
+- 🎓 I was a computer science student, and now I am pursuing a master's degree in Information and Communication Security.
 - 🎮 I like to play computer games
 - 🎸 I like listening to metal music
 - ✨ Fun fact: Wikipedia confirmed that I am a man because the basis of my name is the Germanic common name "karlaz"
